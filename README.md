@@ -1,2 +1,3 @@
 # SKYTHREAD-v.1
-tuff game
+i made it for my friends and the public
+
